@@ -1,4 +1,4 @@
-Scratch and Sniff:
+Scratch n' Sniff:
 
 [   🍓   ]
 [   🍍   ] 
